@@ -1,4 +1,5 @@
-<div align="center"> <img width="600" height="201.5" alt="image" src="https://github.com/user-attachments/assets/873fcbe9-c090-46ba-ab34-56105a64021d" />
+<div align="center"> <img width="600" height="264.5" alt="image" src="https://github.com/user-attachments/assets/c4974ce9-f837-4369-b00b-d538b30964b4" />
+
 
 ### ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
